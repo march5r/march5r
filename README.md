@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @march5r Dmitri
+- 👋 Hi, I’m @march5r Dmitrii
 - 👀 I’m interested in photo and cryptoactivity
 - 🌱 I’m currently learning politic
 - 💞️ my love
